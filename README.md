@@ -1,0 +1,2 @@
+# Lotto-automatyczne-
+Poprawione lotto 
